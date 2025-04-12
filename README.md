@@ -1,16 +1,20 @@
-## Hi there 👋
+# Basic Info
 
-<!--
-**LaithSummers/LaithSummers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Name: Laith/Keegan/Rhys
+Trans male, 16+, He/Him/Them
 
-Here are some ideas to get you started:
+Int friendly, c+h friendly.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Dni: 
+
+Under 14, homophobes, transphobes, anyone unsavory in general, people who fetishize relationships (gay, lesbian, platonic, etc.) proshippers, toxic people, rude people in general
+
+<img src="https://i.pinimg.com/736x/b9/3c/cc/b93cccdfa5af148b86a1f43aefe3b5ee.jpg" width=40% height=40%>
+
+Info:
+
+I speak English and limited chinese, I use lots of tonetags and play pony town A LOT but I may not talk that much!! I make all my ponys from scratch, no tutorials used. Inspo is fine, but please credit if you do use:3 Please try to be platonic, and don't force straight ships onto the characters I've made, I have had that happen too many times. I am very chill, so feel free to int!!
+
+# Socials
+
+Disc - chxr13 (I may not friend, just a warning)
