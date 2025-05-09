@@ -1,7 +1,7 @@
 # Basic Info
 
-## Name: Laith/Keegan/Rhys
-Trans male, 16+, He/Him/Them
+## Name: Laith
+ 16+
 
 Atabook: https://laithrockst4r.atabook.org
 
