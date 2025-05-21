@@ -1,9 +1,9 @@
-<img src="https://i.pinimg.com/736x/d1/1b/f4/d11bf47dfa46418f10c22cdb9ddf68a3.jpg" width=40% height=40%>
-
 ## Name: Laith
  16+
 
 Atabook: https://laithrockst4r.atabook.org
+
+<img src="https://wallpapercave.com/wp/wp10915275.jpg" width=50% height=40%>
 
 Int friendly, c+h friendly, seriously, I'm very chill :3
 
@@ -11,7 +11,7 @@ Dni:
 
 Under 14, homophobes, transphobes, anyone unsavory in general, people who fetishize relationships (gay, lesbian, platonic, etc.) proshippers, toxic people, rude people in general
 
-<img src="https://i.pinimg.com/736x/b9/3c/cc/b93cccdfa5af148b86a1f43aefe3b5ee.jpg" width=40% height=40%>
+<img src="https://i.pinimg.com/736x/ba/da/71/bada7157ab47b17e668d2d4c1e779f8f.jpg" width=30% height=30%>
 
 Info:
 
@@ -20,5 +20,4 @@ I speak English and limited chinese, I use lots of tonetags and play pony town A
 I like : Pjo, Flight Rising, Pony Town, Studio Ghibli movies, Interactive Fiction games (especially infamous), storywriting, Sky COTL, Genshin Impact, Honkai Star Rail, JJBA, Neon Genesis Evangelion, sewing, traditional art, STARSET, Dead Space, Sleep Token, web design, StarryCat, Alex G, Spiderman ITSV and ATSV, Venom, DMMD, Owl House, TGCF SVSS MDZS etc., Omori, Sharks, Stuffed animals, Stingrays + manta rays, Madoka magica, Bluey, i have too many interests help me
 
 # Socials
-
-Disc - chxr13 (I may not friend, just a warning)
+chxr13_c (pint)
