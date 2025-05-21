@@ -5,7 +5,7 @@
 
 Atabook: https://laithrockst4r.atabook.org
 
-Int friendly, c+h friendly, seriously, c+h im very friendly^^
+Int friendly, c+h friendly, seriously, I'm very chill :3
 
 Dni: 
 
