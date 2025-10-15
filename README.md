@@ -1,9 +1,11 @@
-## Name: Laith
+## Name: tekvizz
  17-19
 
 Atabook: https://laithrockst4r.atabook.org
 
 <img src="https://wallpapercave.com/wp/wp10915275.jpg" width=50% height=40%>
+
+🩸"Hell has followed us onto earth, and I am the monster that has brought it forth" 🩸
 
 Int friendly, c+h friendly, seriously, I'm very chill :3
 
