@@ -2,7 +2,8 @@
 wip page don't mind it
 
 <img src=https://64.media.tumblr.com/3b7321bada87dfc1740e7a2e0f1d1e0f/b99154f9d7a7dfb4-84/s400x600/0e2ce73c2fbdea3be5333dd7b318fd7b5997bee1.gif>
- 17-19
+𝖝𝖛𝖎𝖎
+(7𝖙𝖊𝖊𝖓)
  
  𝖕𝖋𝖕 𝖇𝖞 𝒮𝖔𝖑𝖆𝖎𝖗𝖎𝖓𝖙𝖞
  
