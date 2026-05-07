@@ -20,5 +20,4 @@ Strawpage: https://tekvizzcreates.straw.page/
 
 𝖈+𝖍 𝖜𝖊𝖑𝖈𝖔𝖒𝖊 :: 
 
-<img src=https://i.pinimg.com/1200x/0f/35/7e/0f357e51d4aa527aa06e5d98cde753f3.jpg width=50% height=40%>
-(img cred: Miothle)
+
