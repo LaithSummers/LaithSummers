@@ -5,7 +5,7 @@ wip page don't mind it
 𝖝𝖛𝖎𝖎
 (7𝖙𝖊𝖊𝖓)
  
- 𝖕𝖋𝖕 𝖇𝖞 me >:3
+ 𝖕𝖋𝖕 from Cantana
  
   
    ⋆༺𓆩⚔𓆪༻⋆
