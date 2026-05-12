@@ -7,7 +7,7 @@ wip page don't mind it
  
  𝖕𝖋𝖕 from Cantana
 
- <img src=https://maguro.carrd.co/assets/images/gallery23/f2ec4eed.gif?v=10a293e5.gif> 
+ <img src=https://maguro.carrd.co/assets/images/gallery23/f2ec4eed.gif?v=10a293e5>
  
   
    ⋆༺𓆩⚔𓆪༻⋆
