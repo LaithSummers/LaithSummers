@@ -1,5 +1,6 @@
 # Name: Kviras
-wip page don't mind it
+
+<img src=https://64.media.tumblr.com/9182144a6ff5166db04d0d1dcf731a13/727d0cab748dd6ae-0f/s400x600/7489d757e3d19a5512302acd9de77cba20d41279.pnj>
 
 <img src=https://64.media.tumblr.com/3b7321bada87dfc1740e7a2e0f1d1e0f/b99154f9d7a7dfb4-84/s400x600/0e2ce73c2fbdea3be5333dd7b318fd7b5997bee1.gif>
 𝖝𝖛𝖎𝖎
@@ -23,3 +24,4 @@ Strawpage: https://tekvizzcreates.straw.page/
 𝖈+𝖍 𝖜𝖊𝖑𝖈𝖔𝖒𝖊 :: 
 
 
+<img src=https://graphic.neocities.org/peach_matchbox_by_kicked_in_teeth-dawx3mc.png>
