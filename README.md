@@ -1,4 +1,5 @@
 # Name: Kviras
+I ʍɐs ɯɐɔɥıuǝ, ɐup ʎon, ʍǝɹǝ ɟןǝsɥ. ∀up I qǝƃɐu ʇo H∀⊥Ǝ.
 
 <img src=https://64.media.tumblr.com/9182144a6ff5166db04d0d1dcf731a13/727d0cab748dd6ae-0f/s400x600/7489d757e3d19a5512302acd9de77cba20d41279.pnj>
 
