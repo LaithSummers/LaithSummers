@@ -12,8 +12,6 @@ I ʍɐs ɯɐɔɥıuǝ, ɐup ʎon, ʍǝɹǝ ɟןǝsɥ. ∀up I qǝƃɐu ʇo H∀�
    ⋆༺𓆩⚔𓆪༻⋆
    
 Atabook: https://laithrockst4r.atabook.org
-
-Strawpage: https://tekvizzcreates.straw.page/
  
 <img src="https://wallpapercave.com/wp/wp10915275.jpg" width=50% height=40%>
 
