@@ -9,11 +9,6 @@ I ʍɐs ɯɐɔɥıuǝ, ɐup ʎon, ʍǝɹǝ ɟןǝsɥ. ∀up I qǝƃɐu ʇo H∀�
 
 (8𝖙𝖊𝖊𝖓)
  
- 𝖕𝖋𝖕 from Cantana
-
- <img src=https://maguro.carrd.co/assets/images/gallery23/f2ec4eed_original.gif>
- 
-  
    ⋆༺𓆩⚔𓆪༻⋆
    
 Atabook: https://laithrockst4r.atabook.org
