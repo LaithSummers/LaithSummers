@@ -3,7 +3,7 @@ I ʍɐs ɯɐɔɥıuǝ, ɐup ʎon, ʍǝɹǝ ɟןǝsɥ. ∀up I qǝƃɐu ʇo H∀�
 
 <img src=https://64.media.tumblr.com/9182144a6ff5166db04d0d1dcf731a13/727d0cab748dd6ae-0f/s400x600/7489d757e3d19a5512302acd9de77cba20d41279.pnj>
 
-<img src=https://www.psd-dude.com/scrolling-text/#mvj96alx](https://www.psd-dude.com/scrolling-text/#mvj96alx>
+<img src=https://imgur.com/a/94w7s7E>
 #1 StarryCat glazer (-no I don't listen to anything after the StarryCat album is ai. Only split 7' and StarryCat are good.)
 
 𝖝𝖛𝖎𝖎
